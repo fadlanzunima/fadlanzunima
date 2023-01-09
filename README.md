@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on PT Garudaku<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning Everything on my life<br>💬 Ask me about anything<br>⚡ Fun fact
+🔭 I’m currently working on PT Garudaku<br>👯 I’m looking to collaborate on ...<br>🤝 I’m looking for help with ...<br>🌱 I’m currently learning Everything on my life<br>💬 Ask me about anything<br>⚡ Fun fact ..
 
 
 ## 🌐 Socials:
